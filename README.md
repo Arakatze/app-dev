@@ -7,3 +7,5 @@
 3. Alastor - A powerful Overlord who is willing to help run the hotel in the expense of his own entertainment when the whole operation falls down into chaos.
 4. Nifty - The hotel's personal cute and creepy maid who keeps the hotel clean for everyone out of her own enjoyment and hatred for dirty places and bugs.
 5. Husk - The hotel's bartender who is an ex-overlord who lost his life from gambling with more powerful overlords and sold his soul to Alastor.
+
+[Hazbin Hotel](https://www.primevideo.com/-/fil/detail/Hazbin-Hotel/0HZWTBZYQQXYW48YBANMDM2MZE)
