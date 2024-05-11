@@ -1,7 +1,4 @@
-# app-dev
-My first repository
-
-#HAZBIN HOTEL
+# HAZBIN HOTEL
 
 *Hazbin Hotel* is a series about the princess of hell **Charlie Morningstar**, Daughter of **Lucifer Morningstar**, who wishes to stop heaven from coming down to hell and exterminating a bunch of its citizens as a solution for overpopulation. In her attempt, she is currently managing a hotel called the *Hazbin Hotel* where she attempts to "rehabilitate" demons in order for them to get redemption and fly up to heaven. But to no surprise, everyone thinks that this is a stupid idea. She still has the support from all of his friends including:
 
