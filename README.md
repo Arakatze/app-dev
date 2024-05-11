@@ -9,3 +9,5 @@
 5. ***Husk*** - The hotel's bartender who is an ex-overlord who lost his life from gambling with more powerful overlords and sold his soul to Alastor.
 
 [Hazbin Hotel](https://www.primevideo.com/-/fil/detail/Hazbin-Hotel/0HZWTBZYQQXYW48YBANMDM2MZE)
+
+![Hazbin](https://github.com/Arakatze/app-dev/assets/169523071/f63653b7-9de5-46f4-ac95-0697b4dd674f)
